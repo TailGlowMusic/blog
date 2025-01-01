@@ -30,7 +30,7 @@ In fact, I want to be quite upfront that some of the promotional strategies I'm 
 
 ## Show Payola
 
-I considered using the term "Showola" but as "Payola" is already a compound word so the association gets somewhat lost. Maybe "Payshowla" is better? Sounds too awkward to me though.
+I considered using the term "Showola" but as "Payola" is already a compound word the association gets lost somewhat. Maybe "Payshowla" is better? Sounds too awkward to me though.
 
 If you're unaware, the term "Payola" was coined in reference to a scandal whereby record labels would use kickbacks to ensure preferential treatment for certain DJs on radio stations in certain markets. The concept of "Show Payola" is to give "kickbacks" to the people who make an effort to attend these shows and support live music in their city. Or to put it in less flattering terms: it's bribing people to go to shows.
 
@@ -46,7 +46,7 @@ This option would entail having some kind of special "competition" such as a dan
 
 ### Possible Prizes
 
-I'm not above literally just giving a small cash reward as a prize, but that idea is probably the least "fun" or "creative" and is the most likely to have some obscure legal ramification that I haven't thought of yet. I've also considered "gift cards" as a workaround but I'll be blunt that promoting consumerism is not generally something I want to be associated with my art, although gift cards to help support local businesses provide useful services to other artists or musicians is an idea I'm amenable to. I'd also consider making charitable donations in the winner's name as a prize.
+I'm not above literally just giving a small cash reward as a prize, but that idea is probably the least "fun" or "creative" and is the most likely to have some obscure legal ramification that I haven't thought of yet. I've also considered "gift cards" as a workaround but I'll be blunt that promoting consumerism is not generally something I want to be associated with my art, although gift cards to help support local businesses that provide useful services to artists or musicians is an idea I'm amenable to. I'd also consider making charitable donations in the winner's name as a prize.
 
 In actuality though, the most likely type of prize that I am gravitating towards is original art pieces. That way I can make these prizes much more economically efficiently and incorporate "Operation Vesper Loom" branding as well to help raise awareness and continue to promote the overall goals of this project.
 
@@ -58,7 +58,7 @@ I've reached out across a few internet "platforms" to inquire about musicians wh
 
 ### Compensation
 
-I'm not poor anymore, but I'm not rich either. I want to compensate everyone who works with me as "fairly" as I can, although I have to be quite honest that I feel like you should be compensated even more "fairly" than the amount of resources I have can provide. **Everyone who performs as a guest musician during one of my sets at any Operation Vesper Loom performance will receive a flat fee of $20 *as a starting point.*** As I explained elsewhere in this document, it's possible that you will receive extra compensation coming from my pay out but I absolutely cannot guarantee that will happen at any particular show. Now that we are clear about how the compensation scheme will work, let's talk about what you're expectations are as a contracted guest musician.
+I'm not poor anymore, but I'm not rich either. I want to compensate everyone who works with me as "fairly" as I can, although I have to be quite honest that I feel like you should be compensated even more "fairly" than the amount of resources I have can provide. **Everyone who performs as a guest musician during one of my sets at any Operation Vesper Loom performance will receive a flat fee of $20 *as a starting point.*** As I explained elsewhere in this document, it's possible that you will receive extra compensation coming from my pay out but I absolutely cannot guarantee that will happen at any particular show. Now that we are clear about how the compensation scheme will work, let's talk about what your expectations are as a contracted guest musician.
 
 ### Expectations
 
