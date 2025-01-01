@@ -66,13 +66,13 @@ You will be given charts for a small number of songs, possibly even one single s
 
 ### What To Do Next?
 
-If this all sounds agreeable to you, your next step should be to contact me at `tailglowmusic@gmail.com` to let me know what you play, when you expect to be available, and **most importantly** how you want to be contacted. The exact schedule of shows is not lined up yet but I am aiming to book them all between February - May of 2025.
+If this all sounds agreeable to you, your next step should be to contact me at `tailglowmusic@proton.me` to let me know what you play, when you expect to be available, and **most importantly** how you want to be contacted. The exact schedule of shows is not lined up yet but I am aiming to book them all between February - May of 2025.
 
 ---
 
 ## For Other Musicians/Artists Who Want To Be Involved
 
-Please let me know! If we don't already know each other, feel free to email me at `tailglowmusic@gmail.com` and let me know who you are, what you do, and how you can help. This project is very much "my baby" and some of the ambition is quite self-centered: I want to put on really good shows and demonstrate what I'm capable of as a musician. But I also want to demonstrate what "we" are capable of as musicians and even fans of music much more broadly. I'm absolutely open to feedback and collaborative ideas. None of the shows or line ups have been solidified yet so there should be ample opportunity to include those who are enthusiastic. 
+Please let me know! If we don't already know each other, feel free to email me at `tailglowmusic@proton.me` and let me know who you are, what you do, and how you can help. This project is very much "my baby" and some of the ambition is quite self-centered: I want to put on really good shows and demonstrate what I'm capable of as a musician. But I also want to demonstrate what "we" are capable of as musicians and even fans of music much more broadly. I'm absolutely open to feedback and collaborative ideas. None of the shows or line ups have been solidified yet so there should be ample opportunity to include those who are enthusiastic. 
 
 ---
 
