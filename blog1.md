@@ -68,6 +68,9 @@ You will be given charts for a small number of songs, possibly even one single s
 
 If this all sounds agreeable to you, your next step should be to contact me at `tailglowmusic@proton.me` to let me know what you play, when you expect to be available, and **most importantly** how you want to be contacted. The exact schedule of shows is not lined up yet but I am aiming to book them all between February - May of 2025.
 
+If you want an idea of what my music sounds like before you make a commitment you can check out this demo EP I put on Bandcamp:
+https://tailglow.bandcamp.com/album/suburban-piano
+
 ---
 
 ## For Other Musicians/Artists Who Want To Be Involved
